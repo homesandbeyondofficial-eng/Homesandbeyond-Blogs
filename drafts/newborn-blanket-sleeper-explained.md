@@ -77,7 +77,7 @@ Do not cover a baby's head indoors during sleep unless advised by a medical prof
 
 A sleeper can be worn as clothing when it is suitable for the temperature and your baby's needs. During awake time, you may want to change into regular baby clothes depending on the room, activity and whether you are going outdoors.
 
-For supervised cuddles, stroller trips or awake-time comfort, a soft baby blanket can be useful too. Explore the [Homes & Beyond Kids Baby Quilts Collection](https://homesnbeyond.in/collections/baby-quilts) for baby quilt designs that can complement your nursery or be used during supervised moments when your baby is awake.
+For supervised cuddles, stroller trips or awake-time comfort, a soft baby blanket or quilt can be handy. Browse our [baby quilts for nursery styling and supervised cuddle moments](https://homesnbeyond.in/collections/baby-quilts), including the [Little Birdie baby quilt for bird-themed nursery bedding](https://homesnbeyond.in/products/little-birdie-baby-quilt) and the [Safari Hello baby quilt for playful safari nursery decor](https://homesnbeyond.in/products/safari-hello-baby-quilt). These are quilt options for supervised use while baby is awake—not loose bedding for infant sleep.
 
 ## Frequently asked questions
 
@@ -96,5 +96,3 @@ Check the chest or back. If the baby feels hot, is sweating or appears flushed, 
 ## Choosing winter sleepwear with confidence
 
 The most useful baby sleepwear is not necessarily the thickest. It should fit correctly, suit your home's temperature, allow comfortable movement and be easy to care for. Understanding the difference between a footed sleeper, a wearable blanket and a loose blanket makes it easier to shop without confusion—and to keep your baby's sleep environment simple and safe.
-
-**Further reading:** [CDC guidance on safe infant sleep](https://www.cdc.gov/sudden-infant-death/sleep-safely/).
