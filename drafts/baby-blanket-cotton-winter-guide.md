@@ -37,7 +37,7 @@ Indian winters are not the same everywhere. Some homes experience chilly morning
 
 In mild weather, a cotton blanket may be a useful comfort layer during supervised use. During colder weather, parents may need to dress their baby in appropriate clothing layers rather than depending on one blanket to provide all the warmth.
 
-If you are preparing a nursery, explore the [Baby Quilts Collection at Homes & Beyond Kids](https://homesnbeyond.in/collections/baby-quilts) to browse printed quilt styles. Remember that quilts and blankets are for supervised use and should not be placed loose in an infant's sleep space.
+If you're choosing printed bedding for nursery styling or supervised awake-time comfort, browse our [cotton baby quilts for nursery styling and supervised comfort](https://homesnbeyond.in/collections/baby-quilts). Explore individual designs such as the [Daisy Bloom baby quilt for floral nursery decor](https://homesnbeyond.in/products/daisy-bloom-baby-quilt), [Blooming Blossoms baby quilt for flower-print bedding](https://homesnbeyond.in/products/blooming-blossoms-baby-quilts) or [Vroom Vroom baby quilt for a car-themed nursery](https://homesnbeyond.in/products/vroom-vroom-baby-quilt). These quilts are for supervised moments while baby is awake, not loose bedding for infant sleep.
 
 ## Cotton vs fleece vs thicker quilted fabrics
 
@@ -94,4 +94,3 @@ A cotton baby blanket can be a useful winter essential for many families. It is 
 
 The best blanket is one that fits into your family's routine and is used in the right setting. When it comes to sleep, warmth should always be balanced with a clear, safe sleep space.
 
-**Further reading:** [CDC guidance on safe infant sleep](https://www.cdc.gov/sudden-infant-death/sleep-safely/).
