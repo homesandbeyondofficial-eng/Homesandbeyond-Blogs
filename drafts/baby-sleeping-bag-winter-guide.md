@@ -69,7 +69,7 @@ Loose blankets can move around and may cover a baby's face. Safe-sleep guidance 
 
 A suitable wearable sleep sack may be an alternative for warmth, but it needs to fit properly and be used according to the product instructions. Put your baby down on their back on a firm, flat mattress with only a fitted sheet.
 
-Baby quilts and blankets can still be lovely for supervised cuddles, awake-time activities or nursery use. Browse the [Homes & Beyond Kids Baby Quilts Collection](https://homesnbeyond.in/collections/baby-quilts) for printed designs for those supervised moments—keep loose quilts and blankets out of the baby's sleep area.
+For awake-time nursery styling or supervised cuddles, individual baby quilts may be worth exploring. Browse our [baby quilts for nursery styling and supervised cuddle time](https://homesnbeyond.in/collections/baby-quilts), including the [Dino Dreams baby quilt for dinosaur-themed nursery decor](https://homesnbeyond.in/products/dino-dreams-baby-quilt), [Safari Friends baby quilt for safari nursery styling](https://homesnbeyond.in/products/safari-friends-baby-quilt) and [Teddy Bear baby quilt for teddy-themed nursery bedding](https://homesnbeyond.in/products/teddy-bear-baby-quilt). These products are not recommendations for loose bedding in an infant sleep space.
 
 ## Frequently asked questions
 
@@ -94,4 +94,3 @@ A winter sleeping bag is only one part of a baby's sleep setup. Choose a product
 
 When you choose with room temperature and fit in mind, winter routines become easier to manage—and you don't have to rely on a thick blanket in the cot.
 
-**Further reading:** [CDC guidance on safe infant sleep](https://www.cdc.gov/sudden-infant-death/sleep-safely/).
