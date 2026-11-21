@@ -14,7 +14,7 @@ meta_description: "Confused by blanket sleepers, footed sleepers and baby sleep 
 
 # Newborn Blanket Sleeper Explained: What It Is and What Parents Should Know
 
-If you've been shopping for baby winter clothes, you may have come across the words *blanket sleeper*, *footed sleeper*, *wearable blanket* and *sleep sack*. They can sound like different names for the same thing—but they aren't always.
+If you've been shopping for baby winter clothes, you may have come across the words *blanket sleeper*, *footed sleeper*, *wearable blanket* and *sleep sack*. They can sound like different names for the same thing, but they aren't always.
 
 And when you're buying something your newborn will wear to sleep, it's worth understanding what you're actually getting before choosing by appearance or thickness.
 
@@ -60,7 +60,7 @@ Check the chest or back for warmth. If your baby feels hot or is sweating, remov
 
 ## What about baby quilts and blankets for daytime?
 
-A wearable sleeper is for dressing your baby; a quilt is a separate textile. For supervised cuddles, stroller outings or awake-time comfort, a baby blanket may be useful—but keep it away from the baby's sleep area.
+A wearable sleeper is for dressing your baby; a quilt is a separate textile. For supervised cuddles, stroller outings or awake-time comfort, a baby blanket may be useful, but keep it away from the baby's sleep area.
 
 If you're planning a nursery or looking for a textile for supervised moments, browse [baby quilts for nursery decor and daytime cuddles](https://homesnbeyond.in/collections/baby-quilts). For a gentle room theme, a [bird-print quilt for a sweet nature-inspired nursery](https://homesnbeyond.in/products/little-birdie-baby-quilt) has hand-embroidered details, 200 TC cotton and 150 GSM polyfill. It is a nursery or supervised awake-time textile, not loose infant sleep bedding.
 
