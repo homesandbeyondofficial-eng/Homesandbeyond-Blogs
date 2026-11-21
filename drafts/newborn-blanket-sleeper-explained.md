@@ -75,9 +75,9 @@ Do not cover a baby's head indoors during sleep unless advised by a medical prof
 
 ## Can a baby use a blanket sleeper all day?
 
-A sleeper can be worn as clothing when it is suitable for the temperature and your baby's needs. During awake time, you may want to change into regular baby clothes depending on the room, activity and whether you are going outdoors.
+A sleeper can be worn as clothing when it is suitable for the temperature and your baby's needs. During awake time, you may want to change into regular baby clothes depending on the room, activity and whether you are going outdoors. A [bird-print baby quilt for a sweet bird-themed nursery](https://homesnbeyond.in/products/little-birdie-baby-quilt) can also be kept for supervised cuddle time.
 
-For supervised cuddles, stroller trips or awake-time comfort, a soft baby blanket or quilt can be handy. Browse our [baby quilts for nursery styling and supervised cuddle moments](https://homesnbeyond.in/collections/baby-quilts), including the [Little Birdie baby quilt for bird-themed nursery bedding](https://homesnbeyond.in/products/little-birdie-baby-quilt) and the [Safari Hello baby quilt for playful safari nursery decor](https://homesnbeyond.in/products/safari-hello-baby-quilt). These are quilt options for supervised use while baby is awake—not loose bedding for infant sleep.
+For supervised cuddles, stroller trips or awake-time comfort, a soft baby blanket or quilt can be handy. Explore [baby quilts for nursery decor and supervised awake-time moments](https://homesnbeyond.in/collections/baby-quilts). Quilts are for supervised use while baby is awake—not loose bedding for infant sleep.
 
 ## Frequently asked questions
 
@@ -95,4 +95,4 @@ Check the chest or back. If the baby feels hot, is sweating or appears flushed, 
 
 ## Choosing winter sleepwear with confidence
 
-The most useful baby sleepwear is not necessarily the thickest. It should fit correctly, suit your home's temperature, allow comfortable movement and be easy to care for. Understanding the difference between a footed sleeper, a wearable blanket and a loose blanket makes it easier to shop without confusion—and to keep your baby's sleep environment simple and safe.
+For a safari-inspired room, a [safari animal baby quilt for playful nursery styling](https://homesnbeyond.in/products/safari-hello-baby-quilt) is another awake-time decor option. The most useful baby sleepwear is not necessarily the thickest. It should fit correctly, suit your home's temperature, allow comfortable movement and be easy to care for. Understanding the difference between a footed sleeper, a wearable blanket and a loose blanket makes it easier to shop without confusion—and to keep your baby's sleep environment simple and safe.
