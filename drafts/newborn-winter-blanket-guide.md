@@ -16,13 +16,13 @@ meta_description: "Wondering how to keep your newborn warm this winter? Learn ab
 
 The first winter with a newborn can make even the simplest things feel like a big decision. Is the room too cold? Does the baby need one more layer? Should you use a thicker blanket at night? And why do your baby's hands feel cool when the rest of them seems comfortable?
 
-These are very normal questions. Babies cannot tell us when they feel cold, and winter temperatures in India can change quite a bit—from chilly early mornings to surprisingly warm afternoons. The trick is to keep your baby comfortably warm without piling on too many layers.
+These are very normal questions. Babies cannot tell us when they feel cold, and winter temperatures in India can change quite a bit, from chilly early mornings to surprisingly warm afternoons. The trick is to keep your baby comfortably warm without piling on too many layers.
 
 ## What should you look for in a newborn winter blanket?
 
 A blanket for a newborn should feel soft, be easy to wash and suit the way you plan to use it. For daytime cuddles, carrying your baby around or a stroller outing, a lightweight cotton blanket can be practical. Look for a fabric that feels gentle, does not have scratchy seams and is easy to manage when you are out with the diaper bag.
 
-Cotton is a popular choice because it is breathable and comfortable against skin. But not all cotton blankets feel equally warm. A thin muslin blanket and a denser cotton quilt are quite different, so look at the fabric construction—not just the word cotton.
+Cotton is a popular choice because it is breathable and comfortable against skin. But not all cotton blankets feel equally warm. A thin muslin blanket and a denser cotton quilt are quite different, so look at the fabric construction,not just the word cotton.
 
 For nursery styling or supervised awake-time comfort, you can browse our [printed baby quilts for nursery decor and cosy daytime moments](https://homesnbeyond.in/collections/baby-quilts). Keep quilts and loose blankets out of your newborn's sleep space.
 
@@ -32,7 +32,7 @@ It depends on where you live and how cold your home gets. A cotton blanket may b
 
 Rather than trying to make one blanket do everything, think about the situation. Is your baby indoors in a comfortable room? Are you heading out in the morning? Will you be moving from a cold outdoor area into a warm car or home? These changes matter.
 
-A [soft cotton baby quilt for a dinosaur-themed nursery](https://homesnbeyond.in/products/dino-dreams-baby-quilt) features 200 TC cotton, 150 GSM polyfill and a quilted construction. Its 92 × 127 cm size makes it a nursery textile to consider for supervised use while baby is awake—not as loose bedding for infant sleep.
+A [soft cotton baby quilt for a dinosaur-themed nursery](https://homesnbeyond.in/products/dino-dreams-baby-quilt) features 200 TC cotton, 150 GSM polyfill and a quilted construction. Its 92 × 127 cm size makes it a nursery textile to consider for supervised use while baby is awake,not as loose bedding for infant sleep.
 
 ## How to keep a newborn warm at night
 
@@ -47,7 +47,7 @@ For sleep, keep things simple:
 
 If the room feels chilly, suitable clothing layers are a safer way to adjust warmth than adding loose bedding. Avoid overdressing, too.
 
-## How can you tell if your baby is cold—or too warm?
+## How can you tell if your baby is cold, or too warm?
 
 Don't judge only by tiny hands or feet. They can feel cooler than the rest of the body. Gently check your baby's chest or back. If it feels comfortably warm, your baby may be fine. If the chest feels hot or you notice sweating, consider removing a layer.
 
