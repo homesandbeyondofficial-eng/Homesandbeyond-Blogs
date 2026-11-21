@@ -20,7 +20,7 @@ But buying one isn't just about picking the thickest or fluffiest design. A slee
 
 ## What is a baby sleeping bag?
 
-A baby sleeping bag—often called a wearable blanket or sleep sack—is a garment designed to be worn over sleep clothing. Unlike a regular blanket, it is made to stay on the baby rather than being tucked around them.
+A baby sleeping bag, often called a wearable blanket or sleep sack,is a garment designed to be worn over sleep clothing. Unlike a regular blanket, it is made to stay on the baby rather than being tucked around them.
 
 Styles and construction differ. Check that the product is specifically designed for infant sleep, read the size guidance and avoid weighted sleep sacks or weighted sleepwear.
 
@@ -64,7 +64,7 @@ Loose blankets can shift and cover a baby's face, so they should not be left in 
 
 A correctly sized wearable sleep sack designed for infant sleep may be an option, provided you follow the product's fit and temperature instructions.
 
-Quilts and blankets are different items and can still be useful for supervised cuddles, outings or nursery styling while baby is awake. Browse [baby quilts for nursery decor and supervised daytime comfort](https://homesnbeyond.in/collections/baby-quilts). For a nature-inspired room, a [safari animal baby quilt with embroidered animal motifs](https://homesnbeyond.in/products/safari-friends-baby-quilt) is made with 200 TC cotton, 150 GSM polyfill and a quilted finish. It's a nursery textile for supervised awake-time use—not a recommendation for loose infant sleep bedding.
+Quilts and blankets are different items and can still be useful for supervised cuddles, outings or nursery styling while baby is awake. Browse [baby quilts for nursery decor and supervised daytime comfort](https://homesnbeyond.in/collections/baby-quilts). For a nature-inspired room, a [safari animal baby quilt with embroidered animal motifs](https://homesnbeyond.in/products/safari-friends-baby-quilt) is made with 200 TC cotton, 150 GSM polyfill and a quilted finish. It's a nursery textile for supervised awake-time use,not a recommendation for loose infant sleep bedding.
 
 A [teddy-themed cotton baby quilt for cosy nursery styling](https://homesnbeyond.in/products/teddy-bear-baby-quilt) is another design to look at if you're planning a warm, playful room. Keep decor choices separate from the sleep-safety setup.
 
