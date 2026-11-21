@@ -31,7 +31,7 @@ When choosing a newborn blanket, look for:
 
 Cotton is a popular choice because it feels gentle, is breathable and is generally easy to care for. However, a cotton blanket alone may not provide enough warmth in particularly cold conditions. Your baby's clothing and the surrounding temperature matter just as much as the blanket.
 
-If you're styling a nursery or looking for a quilt for supervised awake-time comfort, browse our [baby quilts for nursery styling and supervised cuddle time](https://homesnbeyond.in/collections/baby-quilts). For a playful print, see the [Dino Dreams baby quilt for a dinosaur-themed nursery](https://homesnbeyond.in/products/dino-dreams-baby-quilt) or the [Daisy Bloom baby quilt for floral nursery decor](https://homesnbeyond.in/products/daisy-bloom-baby-quilt). These quilts are for supervised use while baby is awake—not loose bedding for infant sleep.
+For nursery styling or supervised awake-time comfort, browse our [printed baby quilts for nursery decor and supervised awake-time use](https://homesnbeyond.in/collections/baby-quilts). These quilts are not loose bedding for infant sleep.
 
 ## Is a cotton blanket warm enough for a newborn in winter?
 
@@ -66,7 +66,7 @@ If your baby's chest feels hot or they are sweating, remove an extra layer. Adju
 
 Thick, fluffy or heavily padded blankets should not be used as loose bedding in a newborn's sleep area. Loose bedding can cover a baby's face and create risks associated with overheating or obstructed breathing.
 
-A winter blanket can still be useful outside the sleep space—for supervised cuddle time, carrying your baby, outings in cold weather or as a comfort layer while a parent is holding them. A baby quilt may also be useful for supervised floor time when your baby is awake and an adult is present.
+A winter blanket can still be useful outside the sleep space—for supervised cuddle time, carrying your baby, outings in cold weather or as a comfort layer while a parent is holding them. A baby quilt may also be useful for supervised floor time when your baby is awake and an adult is present. If you like a playful theme, a [dinosaur-print baby quilt for a themed nursery](https://homesnbeyond.in/products/dino-dreams-baby-quilt) can add character to the room.
 
 ## What should parents check before buying a newborn winter blanket?
 
@@ -99,6 +99,6 @@ For infant sleep, a properly sized wearable sleep sack can help keep a baby warm
 
 ## Keeping your baby comfortable through the colder months
 
-Winter care is less about piling on blankets and more about finding the right balance. Comfortable clothing, a suitable room environment and safe sleep practices help parents care for their newborn during colder days and nights.
+Winter care is less about piling on blankets and more about finding the right balance. For a softer nursery look, a [floral baby quilt for a gentle, flower-themed nursery](https://homesnbeyond.in/products/daisy-bloom-baby-quilt) can be a supervised awake-time textile. Comfortable clothing, a suitable room environment and safe sleep practices help parents care for their newborn during colder days and nights.
 
 A soft cotton baby blanket can be a useful part of everyday essentials for cuddles, outings and supervised moments together. Choose thoughtfully, keep your little one comfortable and remember that safe sleep should always come first.
