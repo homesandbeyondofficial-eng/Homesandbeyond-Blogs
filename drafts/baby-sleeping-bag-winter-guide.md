@@ -53,7 +53,7 @@ Choose a comfortable fabric with seams and closures that are designed for baby w
 Make sure the sleeping bag does not have a hood for indoor sleep, loose decorative parts, weighted components or features that could cover the face.
 
 ### 5. Consider your home's winter temperature
-A home in a mild climate may require a different sleep layer from a colder region. Indoor temperature is a better guide than the season alone.
+A home in a mild climate may require a different sleep layer from a colder region. Indoor temperature is a better guide than the season alone. If you're decorating with safari prints, a [safari-print baby quilt for animal-themed nursery decor](https://homesnbeyond.in/products/safari-friends-baby-quilt) can be reserved for supervised awake time.
 
 ## What should a baby wear underneath a winter sleeping bag?
 
@@ -69,7 +69,7 @@ Loose blankets can move around and may cover a baby's face. Safe-sleep guidance 
 
 A suitable wearable sleep sack may be an alternative for warmth, but it needs to fit properly and be used according to the product instructions. Put your baby down on their back on a firm, flat mattress with only a fitted sheet.
 
-For awake-time nursery styling or supervised cuddles, individual baby quilts may be worth exploring. Browse our [baby quilts for nursery styling and supervised cuddle time](https://homesnbeyond.in/collections/baby-quilts), including the [Dino Dreams baby quilt for dinosaur-themed nursery decor](https://homesnbeyond.in/products/dino-dreams-baby-quilt), [Safari Friends baby quilt for safari nursery styling](https://homesnbeyond.in/products/safari-friends-baby-quilt) and [Teddy Bear baby quilt for teddy-themed nursery bedding](https://homesnbeyond.in/products/teddy-bear-baby-quilt). These products are not recommendations for loose bedding in an infant sleep space.
+For awake-time nursery styling or supervised cuddles, explore [baby quilts for nursery decor and supervised awake-time comfort](https://homesnbeyond.in/collections/baby-quilts). Baby quilts are not recommendations for loose bedding in an infant sleep space.
 
 ## Frequently asked questions
 
@@ -92,5 +92,5 @@ Use the manufacturer's size and weight chart. Avoid buying an oversized bag for 
 
 A winter sleeping bag is only one part of a baby's sleep setup. Choose a product intended for infant sleep, check the fit, follow its temperature guide and avoid overdressing your baby. Keep the sleep surface firm, flat and free of loose bedding, and always place your baby on their back.
 
-When you choose with room temperature and fit in mind, winter routines become easier to manage—and you don't have to rely on a thick blanket in the cot.
+When you choose with room temperature and fit in mind, winter routines become easier to manage—and you don't have to rely on a thick blanket in the cot. For a teddy-bear nursery theme, a [teddy bear baby quilt for soft nursery styling](https://homesnbeyond.in/products/teddy-bear-baby-quilt) can be a decorative or supervised awake-time option.
 
