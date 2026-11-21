@@ -31,7 +31,7 @@ When choosing a newborn blanket, look for:
 
 Cotton is a popular choice because it feels gentle, is breathable and is generally easy to care for. However, a cotton blanket alone may not provide enough warmth in particularly cold conditions. Your baby's clothing and the surrounding temperature matter just as much as the blanket.
 
-If you are preparing your baby's nursery or looking for a quilt for supervised use, explore the [Homes & Beyond Kids Baby Quilts Collection](https://homesnbeyond.in/collections/baby-quilts) for playful prints and nursery-friendly designs.
+If you're styling a nursery or looking for a quilt for supervised awake-time comfort, browse our [baby quilts for nursery styling and supervised cuddle time](https://homesnbeyond.in/collections/baby-quilts). For a playful print, see the [Dino Dreams baby quilt for a dinosaur-themed nursery](https://homesnbeyond.in/products/dino-dreams-baby-quilt) or the [Daisy Bloom baby quilt for floral nursery decor](https://homesnbeyond.in/products/daisy-bloom-baby-quilt). These quilts are for supervised use while baby is awake—not loose bedding for infant sleep.
 
 ## Is a cotton blanket warm enough for a newborn in winter?
 
@@ -102,5 +102,3 @@ For infant sleep, a properly sized wearable sleep sack can help keep a baby warm
 Winter care is less about piling on blankets and more about finding the right balance. Comfortable clothing, a suitable room environment and safe sleep practices help parents care for their newborn during colder days and nights.
 
 A soft cotton baby blanket can be a useful part of everyday essentials for cuddles, outings and supervised moments together. Choose thoughtfully, keep your little one comfortable and remember that safe sleep should always come first.
-
-**Further reading:** [CDC guidance on safe infant sleep](https://www.cdc.gov/sudden-infant-death/sleep-safely/).
