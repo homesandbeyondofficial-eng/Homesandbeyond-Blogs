@@ -14,15 +14,15 @@ This branch is for revised blog copy only. Review and publishing to Shopify rema
 
 ## Progress
 - [x] 01 — The First Month at Home: A Calm, Practical Nursery Textile Checklist
-- [ ] 02 — The Duvet Cover Fabric Guide: Percale, Sateen and What Each Feels Like
-- [ ] 03 — A Toy Library at Home: Grouping Playthings So Children Can Choose Independently
-- [ ] 04 — Cotton Sheet Weaves Explained: Percale, Sateen and Plain Weave
-- [ ] 05 — A Baby Quilt Keepsake: Ideas for Preserving a Special First-Year Textile
-- [ ] 06 — The Sofa Pillow Size Guide: Getting the Scale Right for Different Sofas
-- [ ] 07 — Cot Mattress Measurements: Details to Confirm Before Ordering Fitted Sheets
-- [ ] 08 — Down Alternative or Cotton-Filled Comforter: Understanding the Differences
-- [ ] 09 — A Laundry-Day Sorting Station Using Baskets for Lights, Darks and Delicates
-- [ ] 10 — Baby Sleeping Bag TOG Ratings: A Parent-Friendly Guide to the Label
+- [x] 02 — The Duvet Cover Fabric Guide: Percale, Sateen and What Each Feels Like
+- [x] 03 — A Toy Library at Home: Grouping Playthings So Children Can Choose Independently
+- [x] 04 — Cotton Sheet Weaves Explained: Percale, Sateen and Plain Weave
+- [x] 05 — A Baby Quilt Keepsake: Ideas for Preserving a Special First-Year Textile
+- [x] 06 — The Sofa Pillow Size Guide: Getting the Scale Right for Different Sofas
+- [x] 07 — Cot Mattress Measurements: Details to Confirm Before Ordering Fitted Sheets
+- [x] 08 — Down Alternative or Cotton-Filled Comforter: Understanding the Differences
+- [x] 09 — A Laundry-Day Sorting Station Using Baskets for Lights, Darks and Delicates
+- [x] 10 — Baby Sleeping Bag TOG Ratings: A Parent-Friendly Guide to the Label
 - [ ] 11 — Outdoor Pillow Inserts and Covers: What Makes a Set Work Well Together
 - [ ] 12 — The Two-Location Changing Setup: Keeping Essentials Ready Upstairs and Downstairs
 - [ ] 13 — From Tummy Time to Crawling: Setting Up a Flexible Baby Floor Space
