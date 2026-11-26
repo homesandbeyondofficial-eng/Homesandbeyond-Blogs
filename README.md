@@ -23,12 +23,12 @@ This branch is for revised blog copy only. Review and publishing to Shopify rema
 - [x] 08 — Down Alternative or Cotton-Filled Comforter: Understanding the Differences
 - [x] 09 — A Laundry-Day Sorting Station Using Baskets for Lights, Darks and Delicates
 - [x] 10 — Baby Sleeping Bag TOG Ratings: A Parent-Friendly Guide to the Label
-- [ ] 11 — Outdoor Pillow Inserts and Covers: What Makes a Set Work Well Together
-- [ ] 12 — The Two-Location Changing Setup: Keeping Essentials Ready Upstairs and Downstairs
-- [ ] 13 — From Tummy Time to Crawling: Setting Up a Flexible Baby Floor Space
-- [ ] 14 — The Hidden Details of a Well-Made Duvet Cover: Closures, Ties and Seams
-- [ ] 15 — A Big-Kid Bed Transition: Bedding Details That Make the New Setup Feel Familiar
-- [ ] 16 — Baby Pillow Safety: Why General Sleep-Surface Guidance Matters More Than Product Claims
+- [x] 11 — Outdoor Pillow Inserts and Covers: What Makes a Set Work Well Together
+- [x] 12 — The Two-Location Changing Setup: Keeping Essentials Ready Upstairs and Downstairs
+- [x] 13 — From Tummy Time to Crawling: Setting Up a Flexible Baby Floor Space
+- [x] 14 — The Hidden Details of a Well-Made Duvet Cover: Closures, Ties and Seams
+- [x] 15 — A Big-Kid Bed Transition: Bedding Details That Make the New Setup Feel Familiar
+- [x] 16 — Baby Pillow Safety: Why General Sleep-Surface Guidance Matters More Than Product Claims
 - [ ] 17 — Choosing a Throw Blanket by Weight: Lightweight, Midweight and Chunky Options
 - [ ] 18 — The Linen Closet Edit: Assigning a Basket to Every Household Textile
 - [ ] 19 — A Baby Quilt for the Nursery: Print, Colour and Border Details Worth Noticing
